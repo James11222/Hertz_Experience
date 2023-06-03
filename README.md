@@ -4,7 +4,7 @@ I just finished my finalist interview for the Hertz Fellowship, and I feel a bit
 
 Anyway, I applied mainly because I figured why the heck not. I was shocked when I found out that I made it to the first interview in November and even more so for the finalist interview. I had my first interview via Zoom in early December and my finalist interview in-person in San Francisco in mid-February. I had a pleasant experience with my interviewers in both rounds although I will admit the first round, I had to play a bit more defensive than I anticipated. I’m not sure if they’ve always done this, but every interview now is conducted by 2 established Hertz Fellows, and they notify you of who your interviewers are going to be before the interview (~2-4 Weeks before) so you can do your research. They won't expect you to know everything about your interviewers’ fields of study, but they do implicitly expect you to look for connections between your work and theirs and be able to have conversations around those topics. The interviews were a little different so I will outline my experiences for each of them below.
 
-(**Update:** I ended up winning the fellowship! I hope reading this helps if you plan to apply.
+(**Update:** I ended up winning the fellowship! I hope reading this helps if you plan to apply.)
 
 ## Interview I: First Round
 
